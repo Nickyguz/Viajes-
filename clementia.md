@@ -1,0 +1,1 @@
+Clemtia una mujer bella y joven, se dirijia al hospital, iba a copiar a los medicos de guardio y sus especialidades .
